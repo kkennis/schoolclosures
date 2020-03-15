@@ -1,0 +1,3 @@
+### __What to expect if a child’s school closes__ 
+
+Most schools should have an action plan in place for continuing classes online if schools close, said Nancy Messonnier, a director at the Centers for Disease Control. Parents should ask the school for plans for teleschool or online learning via a website like [Google Classroom](https://edu.google.com/products/classroom/?modal_active=none). If your school does not have a plan for remote learning, consider using a free online resource such as [Khan Academy](https://www.khanacademy.org/) that requires no parent involvement, is aligned with state standards for learning, and will make sure your child is staying on track academically. 

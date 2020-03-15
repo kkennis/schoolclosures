@@ -1,0 +1,3 @@
+### __Connect with parents experienced with distance learning__
+
+It is normal that parents not familiar with technology or online learning may have difficulty choosing or using these tools for the first time. To connect with parents familiar with online and distance learning for additional support, consider joining [S.E.A, a Facebook group](https://www.facebook.com/groups/seahomeschoolers/) of families experienced with using online tools to support their children’s academic progress online. To be matched with a parent or learning specialist for additional support, please [contact us here](/free-hotline-1).

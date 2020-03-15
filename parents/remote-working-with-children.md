@@ -1,0 +1,5 @@
+__Remote working with children:__ It is normal that parents might feel worried that their children staying home all day may disrupt their productivity. Having children at home all day can represent a significant change in one’s day to day routine and cause stress for the whole family. This is [a list of enriching activities](https://docs.google.com/spreadsheets/d/1KCFnWreu4v7VoO3NbgP-Qcq2LyE1FvliYSoiTLRY7Qg/edit?usp=sharing) compiled by parents across the United States that require zero to minimal parent involvement and will keep children learning and engaged while parents are working. This list can be sorted by age, degree of parent involvement and other criteria such as indoor/outdoor, screens/no screens, cost and educational benefit. 
+
+View the list here: [https://docs.google.com/spreadsheets/d/1KCFnWreu4v7VoO3NbgP-Qcq2LyE1FvliYSoiTLRY7Qg/edit?usp=sharing]
+
+To contribute an idea to this community-generated list, visit: [https://manisha223149.typeform.com/to/cfY0lc].
